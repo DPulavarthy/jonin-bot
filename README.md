@@ -1,1 +1,1 @@
-![DIO](https://i.imgur.com/6GGsBnz.jpg "Jonin's code isn't currently open to everyone")
+![DIO](https://i.imgur.com/Wgoi7H1.png "Jonin's code isn't currently open to everyone")
